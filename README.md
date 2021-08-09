@@ -140,6 +140,6 @@ Yeah. Once a bear pinned me against a mushroom!
 He had a paw on my throat, and with the other, he was slapping me!
 Oh, my!
 
-reeeeeeee
-I like bananas 
-I like reeeeee
+reeeeee
+I like bananas
+reeeeee
